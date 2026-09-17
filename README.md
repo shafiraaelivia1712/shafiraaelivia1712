@@ -1,4 +1,4 @@
-<h1 align="center">Hi 👋, I'm Nur Shafira Prabu Wasistha</h1>
+<h1 align="center">Hi 👋 Nice to meet ya! I'm Nur Shafira Prabu Wasistha</h1>
 <h3 align="center">A Software Engineering student at SMK Darussalam with a passion for Wattpad storytelling and visual design</h3>
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=shafiraaelivia1712&label=Profile%20views&color=0e75b6&style=flat" alt="shafiraaelivia1712" /> </p>
