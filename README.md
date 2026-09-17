@@ -19,7 +19,7 @@
 
 - 📫 How to reach me **shafiraaelivia1712@gmail.com**
 
-- ⚡ Fun fact **I get a lot of inspiration for my Wattpad stories from JKT48!**
+- ⚡ Fun fact **I get a lot of inspiration for my Wattpad stories from JKT48 Idol!**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
